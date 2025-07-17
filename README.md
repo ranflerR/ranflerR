@@ -2,7 +2,7 @@
 # 👋 Olá! Eu sou Isaac Ranfler
 **Analista de Segurança da Informação Jr**  
 📍 Brasília – DF  
-📧 isaac@email.com  
+📧 irangler@gmail.com
 📞 (61) 98247-8388  
 [LinkedIn](https://www.linkedin.com/in/isaac-ranfler-5b61159a/)
 
